@@ -1,0 +1,1 @@
+http://hbr.org/2010/01/the-hbr-list-breakthrough-ideas-for-2010/ar/1
